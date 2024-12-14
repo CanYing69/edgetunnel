@@ -6,7 +6,7 @@
 - 进阶使用视频教程：https://www.youtube.com/watch?v=s91zjpw3-P8
 - **从入门到精通**教程：https://www.youtube.com/watch?v=oRYnrp5rQSc ***必看内容!必看内容!必看内容!!!***
 
-Telegram交流群：[@CMLiussss](https://t.me/CMLiussss)，**感谢[Alice Networks](https://url.cmliussss.com/alice)提供的云服务器维持[CM订阅转换服务](https://sub.fxxk.dedyn.io/)！**
+Telegram交流群：[@CMLiussss](https://t.me/CMLiussss)，[CM订阅转换服务](https://sub.fxxk.dedyn.io/)！**
 
 # 免责声明
 
